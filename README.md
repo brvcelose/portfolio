@@ -12,6 +12,6 @@
 
 ## Feito por:
 
-### Joana Santos
+### Welderson Araujo
 
-### Linkedin: https://www.linkedin.com/school/aluracursos/
+### Linkedin: https://www.linkedin.com/in/brvcelose
